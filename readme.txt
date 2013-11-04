@@ -1,1 +1,1 @@
-tes
+gw ganteng banget
